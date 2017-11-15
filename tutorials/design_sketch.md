@@ -6,11 +6,3 @@ oih
 
 doaslkhj
 
-
-asoi`zjdaspo
-
-
-saojpoasjx
-
-
-asfddsf
