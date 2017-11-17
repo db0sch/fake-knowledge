@@ -13,6 +13,3 @@ pwsafjkpoaskz
 odjfoisajoisajo
 
 sojqosajk
-
-
-lohj
