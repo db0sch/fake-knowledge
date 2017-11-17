@@ -7,8 +7,6 @@ oaksljdz
 
 alsdjqposdoj
 
-pwsafjkpoaskz
-
 
 odjfoisajoisajo
 
